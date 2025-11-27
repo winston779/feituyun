@@ -1,6 +1,6 @@
 # 飞兔云机场官网地址
 
-最新地址：[飞兔云.site](https://www.xn--9kq10e0y7h.site/index.html?register=ABw6BBgt)
+最新地址：[飞兔云.site](https://feitu.im/?register=ABw6BBgt)
 
 ## 飞兔云介绍
 
